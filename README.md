@@ -1,3 +1,4 @@
+![IMG_0669](https://user-images.githubusercontent.com/86187917/133802637-72385678-8327-4271-982d-34f33a2a3272.JPG)
 ### Hi there 👋
 My name is Yvonne. Currently a student studying at National Taipei University majoring in Finance. My passion is to play volleyball and share my life with people. I am now working hard to learn software development skills and commited to work in the financial engineering field.
 <!--
