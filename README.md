@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+My name is Yvonne. Currently a student studying at National Taipei University majoring in Finance. My passion is to play volleyball and share my life with people. I am now working hard to learn software development skills and commited to work in the financial engineering field.
 <!--
 **YTK0520/YTK0520** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
