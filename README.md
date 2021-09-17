@@ -7,9 +7,9 @@ Python<br>
 C/C++<br>
 Excel VBA<br>
 <br>
-### Learn More About Me At🤓
- ![1025px-Instagram-Icon](https://user-images.githubusercontent.com/86187917/133808312-1b52f889-bec9-4154-a310-fede5090ec34.png) [@yvonne90520](https://www.instagram.com/yvonne90520/) <br>
-![facebook-logo-11549681668z1ra1h6mmx](https://user-images.githubusercontent.com/86187917/133808231-94e8e888-7d5d-4753-8e7c-c295f1ff9831.png)[Yvonne Kao](https://www.facebook.com/yvonnekaocow/) <br>
+### 😜Learn More About Me At
+ ![1025px-Instagram-Icon](https://user-images.githubusercontent.com/86187917/133808312-1b52f889-bec9-4154-a310-fede5090ec34.png).    [@yvonne90520](https://www.instagram.com/yvonne90520/) <br>
+![facebook-logo-11549681668z1ra1h6mmx](https://user-images.githubusercontent.com/86187917/133808231-94e8e888-7d5d-4753-8e7c-c295f1ff9831.png).    [Yvonne Kao](https://www.facebook.com/yvonnekaocow/) <br>
 
 
 <!--
